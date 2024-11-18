@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...Nadie
 - 📫 How to reach me ... Naibyvillalobos567@gmail.com
 - 😄 Pronouns: ... No tengo.
-- ⚡ Fun fact: ... Estoy aprendiendo atocar guitarra.
+- ⚡ Fun fact: ... Estoy aprendiendo a tocar guitarra.
 
 <!---
 Nai-Villalobosv/Nai-Villalobosv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
